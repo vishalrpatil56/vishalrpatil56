@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @vishalrpatil56
 - 👀 I’m interested in Coding. And also enthusiastic in learning different programming languages.
-- 🌱 I’m currently learning Bsc (Computer Science).
+- 🌱 I’m currently learning MCA.
 - 💞️ I’m looking to collaborate on some interesting projects.
 - 📫 How to reach me mail me in vishalrpatil.56@gmail.com or DM me on Instagram:vishalpatil.56
 - 😄 Pronouns:He/Him/His
